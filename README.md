@@ -1,6 +1,6 @@
 # My portfolio 
 
-hi im chyma dhuib etc...
+hi im chayma dhouib etc...
 
 ## about me
 
